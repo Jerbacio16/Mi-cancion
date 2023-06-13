@@ -17,6 +17,6 @@ Quiero pedirte mi amor
 En donde quiera que estes
 Que no me olvides si no te vuelvo
 A ver cerca de mi otra vez
-Lo que vivimos tu y yo nunca lo vos y aolvidar
+Lo que vivimos tu y yo nunca lo vos y a olvidar
 Esta en mi mente y para siempre estaras
-En mi corazón viviras................
+En mi corazón viviras...
