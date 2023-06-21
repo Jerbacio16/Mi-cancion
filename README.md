@@ -1,12 +1,12 @@
 # Mi-cancion
 
-  Si fuera mago del tiempo
-Tan solo un momento para volver a mirar
-De tus lindos ojos y tus labios rojos
+  Si fuera mago del tiempo,
+Tan solo un momento para volver a mirar,
+De tus lindos ojos y tus labios rojos,
 Volver a besar
 
-  Todos los dias me pregunto
-Si tu me recuerdas como yo a ti
+  Todos los dias me pregunto,
+Si tu me recuerdas como yo a ti,
 Si un existe en tu alma aquel juramento
 De amarnos hasta el fin
 
@@ -14,14 +14,14 @@ De amarnos hasta el fin
 
   Tan solo un momento a quedado
 De todo lo que hubo ayer
-Nuestro amor murio como muere el sol a cada atardecer
+Nuestro amor fallece como muere el sol a cada atardecer,
 Me muero de ganas de verte otra vez
 
 -----o-------o-------o-----
 
 (estribillo)
 
-  Quiero pedirte mi amor
+  Quiero decirte mi amor
 En donde quiera que estes
 Que no me olvides si no te vuelvo
 A ver cerca de mi otra vez
